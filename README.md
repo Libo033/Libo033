@@ -1,5 +1,5 @@
 # 💫 About Me:
-Estudiando desarrollo de Software y desarrollo de paginas web. Actualente buscando trabajo. 
+Estudiando desarrollo de Software y desarrollo de paginas web. Actualmente buscando trabajo. 
 
 
 ## 🌐 Socials:
